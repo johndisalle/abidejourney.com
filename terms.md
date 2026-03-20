@@ -122,5 +122,5 @@ To the extent not covered by these Terms, your use of the App is also governed b
 
 If you have questions about these Terms, please contact us at:
 
-**Email**: support@abidejourney.com
+**Email**: johntdisalle@outlook.com
 
