@@ -1,6 +1,6 @@
 # Terms of Service
 
-**Abide Journey**
+**AbideJourney**
 **Effective Date: March 20, 2026**
 
 Please read these Terms of Service ("Terms") carefully before using the Abide Journey mobile application ("the App"). By downloading, installing, or using the App, you agree to be bound by these Terms.
