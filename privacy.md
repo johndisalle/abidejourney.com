@@ -102,5 +102,5 @@ You have the right to:
 
 If you have questions about this Privacy Policy, please contact us at:
 
-**Email**: privacy@abidejourney.com
+**Email**: johntdisalle@outlook.com
 
